@@ -1,5 +1,5 @@
 # Atores / Atrizes preferidos:
 
 * Marieta Severo
-* Vera Holtz
+* Cristiane Torloni
 * Maria Fernanda Candido
