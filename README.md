@@ -1,5 +1,6 @@
 # Atores / Atrizes preferidos:
 
 * Marieta Severo
-* Vera Holtz
+* Marilia Pera
 * Maria Fernanda Candido
+* Gloria Pires
